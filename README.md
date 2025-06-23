@@ -2,7 +2,7 @@
 
 Colección personal de textos de mi autoría.
 
-Todos los textos han sido escritos en el marco de estudios universitarios o investigaciones personales. S
+Todos los textos han sido escritos en el marco de estudios universitarios o investigaciones personales.
 
 ---
 
